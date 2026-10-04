@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Mohammed Adelو<br> I develop AI-powered software projects—particularly in the e-commerce sector—designed to help beginners achieve their e-commerce goals. I provide tools and actionable steps that subscribers can follow to realize their aspirations.
+I'm Mohammed Adel,<br> I develop AI-powered software projects—particularly in the e-commerce sector—designed to help beginners achieve their e-commerce goals. I provide tools and actionable steps that subscribers can follow to realize their aspirations.
 
 
 ## 🌐 Socials:
